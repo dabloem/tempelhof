@@ -1,5 +1,3 @@
-# CLUB TEMPELHOF
-
 **Zaterdag 23 januari 2027**  
 **20:00 – 03:00 uur**
 
@@ -32,8 +30,7 @@ Walter en Duncan
 
 ## TICKETS & AANMELDEN
 
-**Tickets nu verkrijgbaar:**  
-https://ticketkantoor.nl/shop/tempelhof
+[**Tickets nu verkrijgbaar:**](https://ticketkantoor.nl/shop/tempelhof)
 
 **Meld je aan bij de read-only WhatsApp-groep:**  
 https://chat.whatsapp.com/DrHYH2SAAT6CE4lGAbUBnT?s=cl&p=a&mlu=4&ilr=4
