@@ -32,8 +32,7 @@ Walter en Duncan
 
 [**Tickets nu verkrijgbaar:**](https://ticketkantoor.nl/shop/tempelhof)
 
-**Meld je aan bij de read-only WhatsApp-groep:**  
-https://chat.whatsapp.com/DrHYH2SAAT6CE4lGAbUBnT?s=cl&p=a&mlu=4&ilr=4
+[**Meld je aan bij de read-only WhatsApp-groep:**]( https://chat.whatsapp.com/DrHYH2SAAT6CE4lGAbUBnT?s=cl&p=a&mlu=4&ilr=4)
 
 ---
 
